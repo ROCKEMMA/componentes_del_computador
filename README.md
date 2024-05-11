@@ -1,0 +1,1 @@
+# componentes_del_computador
